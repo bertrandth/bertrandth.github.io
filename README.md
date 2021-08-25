@@ -1,2 +1,2 @@
-# T.BERTRAND
+# T. BERTRAND
 Jeanne d'Arc Bayeux
